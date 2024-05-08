@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Teodora-Codreanu
+- 👀 I’m interested in learning as much as I can from people I meet and sharing my knowledge.
+- 🌱 I’m currently learning Human Resources management
+- 💞️ I am looking forward to collaborating in the long term.
+- 📫 How to reach me: https://www.linkedin.com/in/teodora-codreanu/
+- 😄 Pronouns: My experience in IT Recruitment is gained by an Internship, you can find more on my LinkedIn profile.
+- ⚡ Fun fact: I'm eager to learn and master with ease every assignment I'm in. I still think nothing it's impossible if you're persevering every day in small steps.
